@@ -1,4 +1,4 @@
-# Market Activity Mining: как заработать на привлечении интереса к HIVE
+# Market Activity Mining отзывы: как заработать на привлечении интереса к HIVE
 
 ![Market Activity Mining Hive otzyvy   ](https://github.com/user-attachments/assets/41ec6560-c20f-4156-b39e-78437a283f06)
 
